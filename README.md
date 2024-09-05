@@ -1,4 +1,4 @@
-![Samuel Everett](https://github.com/Severett77/Severett77/blob/main/everettsam.png)
+![Samuel Everett](https://github.com/Severett77/Severett77/blob/main/eas.png)
 
 <div align="center">
   
